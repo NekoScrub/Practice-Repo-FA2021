@@ -1,4 +1,4 @@
-## Student Name (or name you would preferred to be called)
+## Max Crace
 
 ### Fall 2021
 
